@@ -1,1 +1,0 @@
-# furniture-factory-exercise
